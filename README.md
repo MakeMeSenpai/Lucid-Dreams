@@ -1,4 +1,7 @@
-The Main character will have to survive a wild dream, in which feels way too real. They will be sent to sleep due to a curse, and if they fail, they will end up having a heart attack and dieing in their wake. The Main character will get help from his friend in the real world while being stuck in a coma like state.
+#Lucid Dreams
+
+synopsis
+    The Main character will have to survive a wild dream, in which feels way too real. They will be sent to sleep due to a curse, and if they fail, they will end up having a heart attack and dieing in their wake. The Main character will get help from his friend in the real world while being stuck in a coma like state.
 
 ls
     Sam L Jackson - Dr. Will Wu
@@ -6,7 +9,7 @@ ls
     Scarlette Johanson - Mrs Kathy Parker
     Mila Kunis - Painter Chloe Slaughterhouse
 
-NOT BY ME, MADE WITH MASTERPIECE GENERATOR @Plot Generator.com
+NOT BY ME, MADE WITH MASTERPIECE GENERATOR @Plot Generator.com edited by Anthony Protho
 
     EXT. MOON - AFTERNOON
 
@@ -303,5 +306,91 @@ Goodmorning Nieghbor. I'll surely try but you know how work goes.
 ANDY
 Well no worries, we are both busy men after all
 Will
+Yeah.. it appears so.
 
+WIll walks away, looking upset and bored. then enters the tram. 
+
+Will works at the hospital were he sees ANDY's sister KATHY who is a nurse at the hospital he works at.
+
+KATHY
+Hello Will, ready for another day of work?
+
+WILL
+just another day at the job I guess.
+
+KATHY
+Then how about we go get lunch together during your next break?
+
+WILL flustered
+I'm sorry, not today. Besides, you know your brother wouldn't like us talking.
+
+KATHY
+Oh stop! Andy likes you, and what would be wrong with us going on more time?
+
+WILL
+I'm sorry Kathy, but no. Being friends with someone and being okay with them dating his sister are two different things. And our friendship means more to me than to ruin it this way. 
+
+KATHY
+Psh, whatever. You are just a coward!
+
+WILL Walks away saying
+I guess I am..
+
+WILL then walks into the clinics room and checks a clipboard
+then shadows over a female paitent.
+
+WILL reads out loud
+Chloe Slaughterhouse, found passed out next to her painting of a tesseraque. Presumable becuase of shock when a burgurlar entering her kitchen window. She has been like this for 2 days
+
+WILL then sees and reaches for her neckalous
+It can't be...
+
+Will reaching for the neckalous than hears her heart rate flat lines.  He is stuck with panic and shocks her to life.
+
+CHLOE
+*breaths heavily* Where am I?!
+
+WIll
+It's okay, you are in the hospital. You have been asleep for a few days.
+
+CHLOE
+A few days?! I have to get home! I have to take care of my kittens!
+
+WILL
+I'm sorry, but I can't let you do that. We have no idea what kind of state you are in right now.
+
+CHLOE 
+But I don't want my kittens to die! They are all I have left!
+
+WILL
+Okay! Okay, I'll take you to your kittens. But we will have to go now before any of the other nurses or Doctors find out that you have woken up.
+
+CHLOE
+Oh Thank you! Thank you!
+
+WILL
+SHH, Thank me later. We should go now!
+
+WILL followed by CHLOE sneak out of the hospital, and WIll calls a taxi for them to leave in.
+
+At CHLOES house. Filled with kittens, furniture and paintings. Still a mess from the burgalur
+
+CHLOE
+I'm so glad that fiend spilt all the cat food. 
+
+WILL
+They were just a bit dehydrated but they should be okay now. BUt what about you, how are you feeling?
+
+CHLOE
+I feel alright. A lot better now that I have my Kittens here with me. But could you stay a bit longer. I know I have to go back to the hospital but you can take care of the place for me right?
+
+WILL
+Of course. but how will I get in?
+
+CHLOE then hands him her neckalous, which is revealed to be a hidden key. 
+
+CHLOE
+Please take care of it for me. 
+
+WILL takes the neckalous with lots of emotion, staring into CHLOE's beautiful eyes. They both get flustered. And end up holding hands gently on the couch.
 THE END
